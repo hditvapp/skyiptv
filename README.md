@@ -1,1 +1,1 @@
-# www.skyiptv.cc
+# www.skyiptv.org
